@@ -7,6 +7,6 @@ Miracle Box is a kind of mobile flashing tool specially designed for Chinese mob
 
 
 
-## [🚀🎉✔Miracle Box Tool For PC ](https://tinyurl.com/yxwwa9k8)
+## [🚀🎉✔Miracle Box Tool For PC ](https://tinyurl.com/ycx9cmnc)
 
-## [🚀🎉✔Miracle Box Tool For Windows](https://tinyurl.com/yxwwa9k8)
+## [🚀🎉✔Miracle Box Tool For Windows](https://tinyurl.com/ycx9cmnc)
